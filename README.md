@@ -1,1 +1,1 @@
-A web-site I partly vibecoded for my mum's birthday
+A website I partly vibecoded for my mum's birthday
